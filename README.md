@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Roterdan1x
+- 👋 Hi, I’m @r0terdan
 - 👀 I’m interested in discord, and 3d programation
 - 🌱 I’m currently learning about all things
 - 💞️ I’m looking to collaborate on discord personalization.
